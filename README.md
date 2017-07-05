@@ -1,6 +1,8 @@
 # cv-latest-job-history
 EXPERIENCE
+
 PROJECT MANAGER, BANK OF ZAMBIA: LUSAKA, ZAMBIA. 08/2009 - 05/2017
+
 Responsible and accountable for the coordinated management of multiple related projects directed toward strategic business and other organizational objectives. 
 Establish rapport, and maintain communication with stakeholders at multiple levels, including those external to the organization. 
 Spearheaded design and delivery of projects, obtain operations resources for technology enhancements, and release planning, while working to ensure successful delivery and acceptance of the changes. 
